@@ -381,7 +381,7 @@ a lot.
 
 with all my sincerity,
 
-Kai 💕
+Kai 🤍
 
 `;
 
